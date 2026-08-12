@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-OADJ770516HMCLMQ03
+OADJ770516HMCLMQ03
